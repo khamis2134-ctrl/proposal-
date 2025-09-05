@@ -40,4 +40,4 @@ This proposal is open for review and collaboration with **NGOs, educational inst
 ## 📬 Contact
 - **Email:** abdalrashid.khamis.a@gmail.com  
 - **WhatsApp:** +251975217022  
-- **LinkedIn:** [Abdalrashid Altahir](https://www.linkedin.com/in/alrashid2134-altahir)
+- **LinkedIn:** [Abdalrashid Altahir](https://www.linkedin.com/in/alrashid-2134-altahir)
