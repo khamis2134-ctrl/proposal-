@@ -39,4 +39,4 @@ Open for **NGO partnerships, institutional review, and community engagement init
 ## 📬 Contact
 - **Email:** abdalrashid.khamis.a@gmail.com  
 - **WhatsApp:** +251975217022  
-- **LinkedIn:** [Abdalrashid Altahir](https://www.linkedin.com/in/abdalrashid-altahir)
+- **LinkedIn:** [Abdalrashid Altahir](https://www.linkedin.com/in/alrashid-2134-altahir)
